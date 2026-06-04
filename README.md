@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BAAA071122HPLRCDA9
+BAAA071122HPLRCDA9
